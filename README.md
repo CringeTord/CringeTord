@@ -1,5 +1,6 @@
 hey . ex / exp / "expy" / sour .
-GRACfE , pressure and Endless Torment Trio (E.T.T.) fan .
+
+GRACE , pressure and Endless Torment Trio (E.T.T.) fan .
 
  mostly playing grace or fishing maybe .
 
