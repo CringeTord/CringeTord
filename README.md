@@ -1,26 +1,23 @@
-HII !!! I'M SOUR !! (＾ω＾)
+hey . ex / exp / "expy" / sour .
+GRACfE , pressure and Endless Torment Trio (E.T.T.) fan .
 
-EDDSWORLD FAN SINCE 2018 ! 🌎 ALSO GRACE, PRESSURE, ENDLESS TOURNUMENT TRIO AND SPOOKY MONTH FAN !!! ヾ(＾-＾)ノ
+ mostly playing grace or fishing maybe .
 
+he / they . I am transmasc - asexual , demisexual and almondsexual .
 
-MOSTLY IN PONY TOWN, IN THE GRACE OR EDDSWORLD CORNER ! ! 
+I have DIAGNOSED adhd , dyslexia and dyscalculia , be paitent with me .
 
-I'M A HE/THEY ! A TRANSMASC !! ASEXUAL + DEMISEXUAL AND ALMONDSEXUAL ! ! ! (´-ω-`)
+I like will wood .
 
-I HAVE DIAGNOSED ADHD, DYSCALCULIA AND DYSLEXIA , SO I MIGHT BE A LITTLE SLOW OR CAN'T UNDERSTAND/TYPE COMPLICATED WORDS OR EVEN SIMPLE MATH ! ! SORRY ! (´•ω•`)
+expandable from pressure kinner and in character .
 
-COMFORT ARTIST WILL WOOD / WILL WOOD AND THE TAPEWORMS ! 🐁🌕
-
-I'M A PROUD AND HEAVY MATT EDDSWORLD FICTKIN (＾ω＾) 
-
-YAP TO ME ABOUT EDDSWORLD HEADCANONS PLSSS + ABT TORDMATT + ASK ME STUFF/FUNFACTS ABOUT PRESSURE PLSPLSPLSLSSS (*＾＾*)
-
+if you ever find me with a John Grace and Tourist , those are my just lovely husbands hehe .
 
 PROSHIPPERS/MAPS/ZOOZ/PEDOS/NAZIS/ 
-ETC DO NOT INTERACT WITH ME ! I'M NOT INTERESTED IN YOUR WEIRD STUFF ! 🚫 
+etc DO NOT . interact with me . ew .
 
-（´～｀)
+also DO NOT interact if under 12 or over 21 . thanks.
 
-ALSO PLEASE DON'T INTERACT WITH ME IF YOU'RE UNDER 12 - OVER 21 !!! Σ(゜゜)
+I DO NOT GIVE MY ROBLOX ACCOUNT TO EVERYONE !
 
-I DO NOT GIVE MY ROBLOX ACCOUNT TO EVERYONE ! 
+I DO NOT SUPPORT GRACE NOR PRESSURE CREATORS .
