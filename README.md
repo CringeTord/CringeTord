@@ -4,13 +4,12 @@ GRACE , pressure and Endless Torment Trio/Team (E.T.T.) fan .
 
  mostly playing GRACE or fishing maybe .
 
-he / them . I am transmasc - asexual , demisexual and almondsexual .
+he / they . I am transmasc - asexual , demisexual and almondsexual .
 
 I have DIAGNOSED adhd , dyslexia and dyscalculia , be paitent with me .
 
-I like will wood .
 
-I'm in the E.T.Team server! 
+I'm in the E.T.Team server! come find me there .
 
 expendable from pressure fictionkin .
 
