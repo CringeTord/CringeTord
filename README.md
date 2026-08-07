@@ -9,11 +9,11 @@ he / they . I am transmasc - asexual , demisexual and almondsexual .
 I have DIAGNOSED adhd , dyslexia and dyscalculia , be paitent with me .
 
 
-I'm in the E.T.Team server! come find me there .
+I'm in the E.T.Team discord server! come find me there .
 
 expendable from pressure fictionkin .
 
-if you ever find me with a Tourist Doorsman , thats just my lovely husbands hehe .
+if you ever find me with a Tourist Doorsman , thats just my lovely husband hehe .
 
 
 PROSHIPPERS/MAPS/ZOOZ/PEDOS/NAZIS/ZEAL OR REN SUPPORTERS
